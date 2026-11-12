@@ -7,8 +7,7 @@ Alytus (taip, akcentas stiprus)
 1975 m.   
 tel. nr. +370 698 45371  
 valdeckis@gmail.com  
-Aukų ieško skelbiu.lt - skelbimas https://www.skelbiu.lt/pasiulymai/rastiniainameliai/  
-
+Aukų ieško skelbiu.lt - skelbimas https://www.skelbiu.lt/pasiulymai/rastiniainameliai/  - ten nėra galimybės palikti atsiliepimų ar įvertinti.
 
 Bendrininkė - žmona Vilma.  
 
