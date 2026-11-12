@@ -13,4 +13,6 @@ Bendrininkė - žmona Vilma.
 
 Prisidengdamas statybos darbais apgaudinėja žmones - gauna pinigus ir staiga miršta uošvienė. Paskui kita uošvienė. Na ir panašiai ir be galo. Tiesiog venkite šio š*** gabalo.  
 
-Na tai jau turbūt suprantat apie ką. Tikiuos ne per vėlai.
+Na tai jau turbūt suprantat apie ką. Tikiuos ne per vėlai.  
+
+Nukentėjote? Rašykite čia: https://rentry.co/adshfph-fd44Ul , slaptažodis - `beleckas`
