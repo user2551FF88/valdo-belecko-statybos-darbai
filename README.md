@@ -11,4 +11,4 @@ Prisidengdamas statybos darbais išvilioja pinigus. Tai ką padaro, padaro labai
 
 Nukentėjote? Rašykite čia: https://rentry.co/adshfph-fd44Ul , slaptažodis - `beleckas`
 
-Daugiau informacijos:  TBA
+Daugiau informacijos:  TBA 
