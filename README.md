@@ -4,15 +4,11 @@ valdas beleckas rastiniai nameliai stogu dengimas sukciavimas
 Valdas Beleckas  
 Aukštas, stambus  
 Alytus (taip, akcentas stiprus)    
-1975 m.   
-tel. nr. +370 698 45371  
-valdeckis@gmail.com  
-Aukų ieško skelbiu.lt - skelbimas https://www.skelbiu.lt/pasiulymai/rastiniainameliai/  - ten nėra galimybės palikti atsiliepimų ar įvertinti.
 
-Bendrininkė - žmona Vilma.  
+Aukų ieško skelbiu.lt - skelbimas https://www.skelbiu.lt/pasiulymai/rastiniainameliai/  - ten nėra galimybės palikti atsiliepimų ar įvertinti.  
 
-Prisidengdamas statybos darbais apgaudinėja žmones - gauna pinigus ir staiga miršta uošvienė. Paskui kita uošvienė. Na ir panašiai ir be galo. Tiesiog venkite šio š*** gabalo.  
-
-Na tai jau turbūt suprantat apie ką. Tikiuos ne per vėlai.  
+Prisidengdamas statybos darbais išvilioja pinigus. Tai ką padaro, padaro labai skubotai ir su daugybe broko.  
 
 Nukentėjote? Rašykite čia: https://rentry.co/adshfph-fd44Ul , slaptažodis - `beleckas`
+
+Daugiau informacijos:  TBA
